@@ -4,7 +4,7 @@ List of summer internship in 2024
 
 ## In making...
 
-Are you looking for Fall internship? We have created a curated list of fall 2023 internship. You can also find complete list here: https://www.onlyreferrals.co/learn/fall-23-internship-jobboard
+Are you looking for Fall internship? We have created a curated list of fall 2023 internship. You can also find complete list here: https://www.onlyreferrals.co/learn/summer-24-internship-jobboard
 
 ---
 
